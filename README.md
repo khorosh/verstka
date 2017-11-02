@@ -1,2 +1,3 @@
-Zdes budet zaebis
-Ili ne budet
+Rodionov
+Mne nuzhen startup po dotke
+Pomogai
